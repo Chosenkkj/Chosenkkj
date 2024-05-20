@@ -1,4 +1,4 @@
-###Boa vinda ao meu perfil 💜
+### Boa vinda ao meu perfil 💜
 
 Meu nome é João Pedro
 
@@ -9,4 +9,4 @@ Meu nome é João Pedro
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 
-###Você pode entrar em contato comigo: 📱 18 99728-5217
+### Você pode entrar em contato comigo: 📱 18 99728-5217
