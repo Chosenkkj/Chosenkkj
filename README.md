@@ -10,3 +10,6 @@ Meu nome é João Pedro
 
 
 ### Você pode entrar em contato comigo: 📱 18 99728-5217
+
+
+![](https://tenor.com/deVheaIGa2O.gif)
