@@ -1,15 +1,16 @@
-### Boa vinda ao meu perfil 💜
+### 💛 Boa vinda ao meu perfil 💛
 
-Meu nome é João Pedro
+✝🏐 Meu nome é João Pedro 🏐✝
 
-- Estou estudando Alura
+- Estou estudando Alura 📚
 
-- Estou desenvolvendo na linguagem Javascript
+- Estou desenvolvendo na linguagem Javascript 🧑‍💻
 
-- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
-
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 😸
 
 ### Você pode entrar em contato comigo: 📱 18 99728-5217
 
 
-![](https://tenor.com/deVheaIGa2O.gif)
+
+
+![](https://media1.tenor.com/m/6FyJ167Rgr8AAAAC/borzoi-side-eye.gif)
